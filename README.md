@@ -42,7 +42,7 @@ I’m a results-driven AI/ML professional with **3+ years of experience** design
 
 ## 📫 Let’s Connect
 - 💼 [LinkedIn](https://www.linkedin.com/in/jwalasri-yerramsetti-840593226/)  
-- 💻 GitHub: [YourUsernameHere]  
+- 💻 GitHub: Jwalasri 
 - ✉️ Email: jwalasriyerramsetti@gmail.com  
 
 ---
